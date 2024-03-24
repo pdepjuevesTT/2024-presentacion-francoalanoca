@@ -19,3 +19,4 @@ Ajeno a los estudios:
 - Cumplo el 27/09.
 - Tengo 2 perros.
 
+![image](https://github.com/pdepjuevesTT/2024-presentacion-francoalanoca/assets/82734753/08774231-baec-4efd-a52c-b990a91f9313)

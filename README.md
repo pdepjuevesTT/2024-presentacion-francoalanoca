@@ -17,5 +17,5 @@ En mis tiempos libres (ya casi ni hay) suelo jugar juegos de estrategia, escucha
 Ajeno a los estudios:
 - Vivo en Parque Avellaneda (CABA).
 - Cumplo el 27/09.
+- Tengo 2 perros.
 
-<p>Saludos campeones del mundo!!</p>

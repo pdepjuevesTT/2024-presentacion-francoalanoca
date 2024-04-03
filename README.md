@@ -17,6 +17,6 @@ En mis tiempos libres (ya casi ni hay) suelo jugar juegos de estrategia, escucha
 Ajeno a los estudios:
 - Vivo en Parque Avellaneda (CABA).
 - Cumplo el 27/09.
-- Tengo 2 perros.
+- Tengo 2 perros de raza caniche toy, Lucky y Sheila.
 
 ![image](https://github.com/pdepjuevesTT/2024-presentacion-francoalanoca/assets/82734753/08774231-baec-4efd-a52c-b990a91f9313)
